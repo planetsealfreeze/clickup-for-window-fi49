@@ -1,4 +1,4 @@
-# 
+# updated ClickUp for Windows Utility | voice-input + notifications offers the most advanced ClickUp for Windows utility, with voice-input and notifications. Ideal for Windows
 
 
 
